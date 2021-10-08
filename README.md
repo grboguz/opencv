@@ -1,0 +1,2 @@
+# gorselanaliz
+asddasdasdasads
